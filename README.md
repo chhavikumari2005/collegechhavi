@@ -1,4 +1,4 @@
 # collegechhavi
 chhavi kumari
 <br>
-Author-Chhavi Kumari
+Author-Chhavi Singh(Apna college)
